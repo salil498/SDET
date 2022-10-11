@@ -11,3 +11,6 @@ https://lnkd.in/dVwfEvDa
 
 ✅Striver DSA Sheet
 https://lnkd.in/dzsinmKx
+
+✅How to write good selectors
+https://lnkd.in/d8kGGpSH
